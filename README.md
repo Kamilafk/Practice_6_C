@@ -1,2 +1,1 @@
 # Practice_6_C
-FSMJMFZJOIJOIJZIOR
